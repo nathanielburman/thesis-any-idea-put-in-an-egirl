@@ -8,6 +8,14 @@ Thesis: take any given complex system and you can make it infinately more comple
 # 3 - egirls as Dieties & Race in Animal Personality Intersectionality
 # 4 - An Experiment - 001
 
+...
+
+...
+
+...
+
+...
+
 # 1 - Put an egirl in the Algo.
 ## Title: "The Egirl Deity: Unveiling Complexity through Divine Integration into Complex Systems"
 
